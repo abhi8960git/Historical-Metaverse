@@ -7,6 +7,9 @@ A metaverse for kullu old artifacts
 ![WhatsApp Image 2023-04-09 at 09 36 40](https://user-images.githubusercontent.com/99817664/230755606-69c80d22-0a23-4824-af17-a348a27af208.jpg)
 
 
+#Project Presentation
+
+https://www.canva.com/design/DAFg244kAgg/xwFfu-kL2-V9YlKuQJ9MsA/view?utm_content=DAFg244kAgg&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink
 
 
 #A brief about our project
